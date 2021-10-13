@@ -4,4 +4,4 @@ Wednesday
 
 Contributed to by Kyle
 
-Contributed to by  Jarrett
+Contributed to by  Jarrett E
